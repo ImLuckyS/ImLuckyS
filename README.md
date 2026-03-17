@@ -31,4 +31,4 @@
 - [Instagram](https://www.instagram.com/_antonio.cabrera)
 - [Facebook](https://www.facebook.com/share/1DjC4AWsT5/)
 - [Correo](mailto:cabreracape14@gmail.com)
-- [LinkedIn](TU_LINK_AQUI)
+- [LinkedIn](www.linkedin.com/in/pedro-cabrera-9720a0371)
